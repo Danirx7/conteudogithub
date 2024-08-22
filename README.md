@@ -7,3 +7,5 @@
 ### Você pode entrar em contato comigo:
 
 - xdaniiel077@gmail.com
+
+- ![](https://media1.tenor.com/m/fYor2mjz-r4AAAAd/ronaldo.gif)
